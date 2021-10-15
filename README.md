@@ -1,7 +1,7 @@
 # This vs That
 
-
-    Constant vs Black/White such that what is mean by Black/White/Gray Verification.
     Human senses are common sense and thats the common sense.
+    Constant vs Black/White such that what is mean by Black/White/Gray Verification.
     Why human point index finger on each other during conversation and stage?
+    Computer mouse pointer index finger.
     Patience is hope and hope is patience.
